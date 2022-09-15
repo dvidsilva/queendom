@@ -1,5 +1,4 @@
-# Queendom of Queen of the fairies Tiger Lily 
-, and King Daveed
+# Queendom of Queen of the fairies Tiger Lily, and King Daveed
 
 
 Anyone who wishes to join our queendom must abide by the following;
